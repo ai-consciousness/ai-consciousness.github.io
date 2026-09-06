@@ -1,1 +1,1 @@
-# -ai-consciousness.github.io
+# ai-consciousness.github.io
